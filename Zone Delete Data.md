@@ -1,0 +1,1 @@
+# To delete your data just send us an Email with "Delete Data for me!" as topic
